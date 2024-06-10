@@ -1,7 +1,7 @@
 # Shalli-nosky-bot-
 A Premium Whatsapp Bot Loaded With Features created by shalli-nosky 
 <p align="center">  
-  <a href="https://whatsapp.com/channel/0029VaPGt3QEwEjpBXT4Rv0z">
+  <a href="https://whatsapp.com/channel/0029VaaShag4CrfjCj8wPz1E">
     <img alt="Asta" height="300" src="https://i.imgur.com/lIo3cM2.jpeg">
     <h1 align="center">ASTA-MD 2.5.O</h1>
   </a>
