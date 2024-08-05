@@ -1,0 +1,1 @@
+How To Contribute To Us Create an Issue on Github Add you phone number or email and tell us to Contact You Then Us how and why you want to contribute to this project 𝖘𝖍𝖆𝖑𝖑𝖎-𝖓𝖔𝖘𝖐𝖞-𝖒𝖉 You can send anything via VODACOM Mpesa number +2349064210898  𝖘𝖍𝖆𝖑𝖑𝖎-𝖓𝖔𝖘𝖐𝖞
